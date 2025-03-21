@@ -72,8 +72,8 @@ Special thanks to my faculty **Mr. Ravikant Tyagi** for his guidance and support
 ## Contact
 For any inquiries or support, feel free to reach out.
 
-**Profile Name:** [Your Name]  
-**Phone Number:** [Your Phone Number]  
+**Profile Name:** [SAMRATH AGARWAL]  
+**Phone Number:** [7078428820]  
 
 Happy coding! 🚀
 
